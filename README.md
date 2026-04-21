@@ -28,4 +28,4 @@
 
 ### 📫 Connect with Me
 * **Location:** Gurugram, India
-* **LinkedIn:** [Insert your Link]
+* **LinkedIn:** linkedin.com/in/kshitishjha/
